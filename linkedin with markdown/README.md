@@ -1,0 +1,1 @@
+this is a "linken profile" made for natasha.it list summary and technical skills and hobbies plus a contact email and link
